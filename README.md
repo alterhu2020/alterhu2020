@@ -1,7 +1,7 @@
 ### Hi there 👋
 
 
-- 🔭 I’m currently working on [blogger](https://blog.pingbook.top)
+- 🔭 I’m currently working on [blogger](https://seniortesting.club)
 - 🌱 I’m currently learning making money quickly
 - 👯 I’m looking to collaborate on making money quickly
 - 🤔 I’m looking for help with making money quickly
